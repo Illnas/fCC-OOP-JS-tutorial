@@ -14,3 +14,6 @@ Y'know, if you want to hate something properly, you gotta understand it first ;)
 
 
 Onwards to another project!!!
+
+
+link:  https://www.youtube.com/watch?v=2ZphE5HcQPQ&list=PL6-RV8_Xfo6Hy4qvSWNWPVZBi1yTxjjEE&index=2&t=1768s
